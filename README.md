@@ -26,6 +26,7 @@ How? Put in the effort
 
 7. Pray for and Pray with others
 
+![](./THANK-GOD-ITS-SATURDAY.webp)
 
 #### From GPT
 
@@ -51,3 +52,5 @@ How? Put in the effort
 7. **Be Flexible and Patient with Yourself:** Understand that developing a consistent prayer life is a process that involves growth and learning. There will be days when your prayer time feels deeply meaningful and other days when it might feel dry or routine. Be patient and open to the movement of the Spirit, adjusting your methods as needed.
 
 Remember, the goal of prayer is not perfection but a deeper relationship with the divine. Allow yourself the grace to grow at your own pace and in your own way, keeping in mind that the journey is as important as the destination.
+
+![](./have-a-blessed-sunday.webp)
