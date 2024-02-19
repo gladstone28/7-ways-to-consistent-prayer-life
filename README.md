@@ -99,5 +99,28 @@ A prayer app can enhance this experience by offering several features:
 Popular prayer apps like **Echo Prayer**, **PrayerMate**, or the **YouVersion Bible App** with its Prayer feature, offer these functionalities to varying degrees. They can be a valuable tool in your endeavor to maintain a consistent prayer life, making it easier to stay organized and focused on your spiritual goals.
 ![](remember-to-pray-today.webp)
 
-Add information here before the Monday Graphic
+
+Incorporating Scripture into your prayers can deepen your connection with God, enrich your prayer life, and provide comfort and guidance. Here's an example of how to do this, using a passage from the Psalms and the words of Jesus.
+
+#### Example 1: Praying with the Psalms
+**Scripture:** Psalm 23:1-3
+"The Lord is my shepherd, I lack nothing. He makes me lie down in green pastures, he leads me beside quiet waters, he refreshes my soul. He guides me along the right paths for his name’s sake."
+
+Prayer:
+Heavenly Father, You are my shepherd; in You, I lack nothing. In the busyness of today, lead me to the quiet places where my soul can be refreshed. Guide me in the right path, that in all I do, it may honor You. Help me to trust in Your provision and care, finding rest in Your presence. Amen.
+
+#### Example 2: Using the Words of Jesus
+**Scripture:** Matthew 11:28-30
+"Come to me, all you who are weary and burdened, and I will give you rest. Take my yoke upon you and learn from me, for I am gentle and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light."
+
+**Prayer:**
+Lord Jesus, I come to You today feeling weary and burdened. Your words offer comfort and hope. Teach me to take Your yoke upon me, to learn from Your gentleness and humility. In You, may I find the rest my soul desperately needs. Help me to lay down my burdens at Your feet and to find Your yoke easy and Your burden light. Amen.
+
+#### Tips for Incorporating Scripture into Your Prayers:
+1. Select a Passage: Choose a scripture that speaks to you or relates to what you are going through.
+2. Reflect: Spend a moment reflecting on what the passage means and how it applies to your life or the lives of those you are praying for.
+3. Personalize: Turn the scripture into a personal prayer by addressing God directly and inserting your own thoughts, feelings, and requests.
+4. Thank and Praise: Use scripture to thank God for His promises and to praise Him for His attributes as revealed in His Word.
+This practice not only enriches your prayer life but also embeds God's Word in your heart, providing strength, guidance, and comfort on your spiritual journey.
+
 ![](thank-God-it-is-monday.webp)
