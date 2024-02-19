@@ -98,3 +98,6 @@ A prayer app can enhance this experience by offering several features:
 
 Popular prayer apps like **Echo Prayer**, **PrayerMate**, or the **YouVersion Bible App** with its Prayer feature, offer these functionalities to varying degrees. They can be a valuable tool in your endeavor to maintain a consistent prayer life, making it easier to stay organized and focused on your spiritual goals.
 ![](remember-to-pray-today.webp)
+
+Add information here before the Monday Graphic
+![](thank-God-it-is-monday.webp)
